@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Samara Alves 😁
+## Bem-vindo(a) ao perfil da Samara Alves
 
  <div>
    <a href="https://github.com/samaraalvesgomes">
